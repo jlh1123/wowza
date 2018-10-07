@@ -1,2 +1,2 @@
 # essketit
-gam
+issa game lamo 
